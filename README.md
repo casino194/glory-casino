@@ -1,4 +1,4 @@
-<h1 dir="ltr"><strong><strong>Glory casino</strong></strong></h1>
+<h1 dir="ltr"><strong><strong>Glory casino - Türkiye'de oynayın</strong></strong></h1>
 <p>&nbsp;</p>
 <p dir="ltr"><strong><a href="https://depo.media/fSMBrv/?subId2=trgit" style="text-decoration: none;"><u>Glory Casino&#39;da oynayın</u></a></strong></p>
 <p>&nbsp;</p>
